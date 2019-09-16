@@ -30,3 +30,8 @@
 - Gmail
 - Firebase
 - PWA
+- HTML
+- Javascript
+- SVG
+- etc
+- ...
