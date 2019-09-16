@@ -57,4 +57,7 @@ Use my perspective. I am putting my TIME ENERGY AND SPACE in order to most effec
 
 Follow on MOOTENS.org.
 
+Continue on to
+
+# Step 1: Create all of Your Accounts
 
