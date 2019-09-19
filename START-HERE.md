@@ -1,3 +1,6 @@
+# PROGRAMMING-YOUR-BRAND-ON-THE-INTERNET
+PROGRAMMING YOUR BRAND ON THE INTERNET
+
 # *START HERE*
 
 - What The Fuck Is Up.
@@ -60,4 +63,20 @@ Follow on MOOTENS.org.
 Continue on to
 
 # Step 1: Create all of Your Accounts
+
+# Step 2: Organize Ideas Content Template Tags
+
+# Step 3: Automated Workflows
+
+# Step 4: Create Content
+
+# Step 5: Value | Scalability | Efficiency
+
+# *Extra FREE Content*:
+
+# Step 6: Business | Art | Technology | Health
+
+# Step 7: Thoughts | Feelings | Action
+
+# Ste 8: Time | Energy | Space
 
